@@ -1,3 +1,5 @@
 Andrew Adisoemarta
-adisoema@oregonste.edu
+adisoema@oregonstate.edu
 purple
+8
+Tyler The Creator
